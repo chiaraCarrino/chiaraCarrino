@@ -1,4 +1,4 @@
-#  👩🏻‍💻 Chiara Carrino
+#  👩🏻‍💻 Chiara Carrino, PhD
 
 **`Post-doctoral researcher in Cellular and Molecular Biology - Bioinformatics`**
 
